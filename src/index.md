@@ -4,7 +4,7 @@ title: About Me
 metaDesc: ""
 postsHeading: Latest posts
 archiveButtonText: See all posts
-socialImage: ""
+socialImage: /images/rachelrandall2.jpg
 ---
 ## Rachel Randall, Realtor
 
