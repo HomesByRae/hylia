@@ -1,13 +1,13 @@
 {
-  "showThemeCredit": true,
-  "name": "Hylia Starter Kit",
-  "shortDesc": "Hylia is a lightweight Eleventy starter kit to help you to create your own blog or personal website.",
-  "url": "https://hylia.website",
-  "authorEmail": "hi@piccalil.li",
-  "authorHandle": "@piccalilli_",
-  "authorName": "Andy Bell",
+  "showThemeCredit": false,
+  "name": "HomesByRae",
+  "shortDesc": "Rachel Randall, Realtor. Crye-Leike Realtors in Ooltewah, TN. Office 423.238.5440, Cell 423.500.HOUSE(4687).",
+  "url": "https://homesByRae.com",
+  "authorEmail": "rachel@homesbyrae.com",
+  "authorHandle": "",
+  "authorName": "Rachel Randall",
   "enableThirdPartyComments": false,
-  "maxPostsPerPage": 5,
-  "paymentPointer": "$ilp.uphold.com/MggmnFEyQqhk",
-  "faviconPath": "/images/favicon.png"
+  "paymentPointer": "/",
+  "faviconPath": "/",
+  "maxPostsPerPage": 5
 }
