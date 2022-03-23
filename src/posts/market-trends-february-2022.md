@@ -3,8 +3,8 @@ layout: layouts/post.njk
 title: Market Trends - February 2022
 date: 2022-03-23T19:20:12.925Z
 tags:
-  - markettrends
-  - thingstoconsider
+  - Market Trends
+  - Things to Consider
 ---
 I read an interesting article from [NAR](https://www.nar.realtor/blogs/economists-outlook/february-2022-realtors-confidence-index-survey-buyer-competition-intensifies-to-5-offers-per-home) earlier today, so I wanted to share the article and my thoughts on it. I also wanted to share how the market here in Chattanooga did for February compared to February of last year. 
 
