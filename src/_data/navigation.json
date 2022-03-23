@@ -4,11 +4,6 @@
       "text": "Home",
       "url": "/",
       "external": false
-    },
-    {
-      "text": "Contact Page",
-      "url": "/contact",
-      "external": false
     }
   ]
 }
