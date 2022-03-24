@@ -6,9 +6,9 @@ postsHeading: Latest posts
 archiveButtonText: See all posts
 socialImage: /images/rachelrandall2.jpg
 ---
-<img src="/images/rachelrandall2.jpg" alt="portrait" width="250"/>
-
 ## Rachel Randall, Realtor
+
+<img src="/images/rachelrandall2.jpg" alt="portrait" width="250"/>
 
 #### Contact information:
 
