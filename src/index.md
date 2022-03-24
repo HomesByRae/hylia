@@ -8,7 +8,7 @@ socialImage: /images/rachelrandall2.jpg
 ---
 ## Rachel Randall, Realtor
 
-<img src="/images/rachelrandall2.jpg" alt="portrait" width="250"/>
+<img src="/images/rachelrandall2.jpg" alt="headshot" style="width:250px; !important"/>
 
 #### Contact information:
 
