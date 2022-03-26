@@ -19,7 +19,7 @@ That's something to consider if you're thinking of buying. You'll need to make s
 
 Another thing for buyers to consider, is that buyers typically offer on 3 homes before their offer is accepted. All hope is not lost though, because about a quarter of buyers get their first offer accepted. 
 
-I mention this because I know how heartbreaking it can be to put an offer on a dream home and have it rejected. Buying a home is an exciting and emotional time, and if I can help you be prepared by sharing information, it might ease the sting a little if you know it's a possibility. 
+I mention this because I know how heartbreaking it can be to put an offer on a dream home and have it rejected. Buying a home is an exciting and emotional time, and I hope that by sharing information, it might ease the sting a little.
 
 For those of you thinking of selling your home, most homes are on the market less than a month.  The average amount of time a home stayed on the market last month was 18 days. I know here in Chattanooga, it's unsurprising for homes to be pending within a couple days of going on the market.
 
