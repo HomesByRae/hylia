@@ -23,7 +23,7 @@ I mention this because I know how heartbreaking it can be to put an offer on a d
 
 For those of you thinking of selling your home, most homes are on the market less than a month.  The average amount of time a home stayed on the market last month was 18 days. I know here in Chattanooga, it's unsurprising for homes to be pending within a couple days of being listed.
 
-And now the part that has me concerned. Because the mortgage rates are rising, and are expected to continue rising, the NAR predicts competition for homes will increase this year. If the rates get to 6% like it's scheduled to in 2023, first-time buyers making less than $80,000 will be priced out of the market. If rates get to 4.5%, about 1.4 million renters will not be able to afford a home.
+And now the part that has me concerned. Because the mortgage rates are rising, the NAR predicts competition for homes will increase this year. If the rates get to 6% like it's scheduled to, first-time buyers making less than $80,000 will be priced out of the market. If rates get to 4.5%, about 1.4 million renters will not be able to afford a home.
 
 I remember how hard it was for my husband and I to buy a home around 6 years ago. We couldn't afford much and anything in our price range either needed major renovations, or we lost out to investors who offered all cash. I would love to see new neighborhoods pop up, with smaller, affordable homes. Well built houses, that maximized the space there, but topped out at 1,500 sq ft would do really well nowadays. But I digress.
 
