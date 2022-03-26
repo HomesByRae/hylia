@@ -29,7 +29,7 @@ I mention this because I know how heartbreaking it can be to put an offer on a d
 
 For those of you thinking of selling your home, most homes are on the market less than a month.  The average amount of time a home stayed on the market last month was 18 days. I know here in Chattanooga, it's unsurprising for homes to be pending within a couple days of being listed.
 
-M**ortgage Rates expected to hit 6%.**
+**Mortgage Rates expected to hit 6%.**
 
 And now the part that has me concerned. Because the mortgage rates are rising, the NAR predicts competition for homes will increase this year. If the rates get to 6% like it's scheduled to, first-time buyers making less than $80,000 will be priced out of the market. If rates get to 4.5%, about 1.4 million renters will not be able to afford a home.
 
