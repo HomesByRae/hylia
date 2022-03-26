@@ -27,8 +27,6 @@ And now the part that has me concerned. Because the mortgage rates are rising, t
 
 I remember how hard it was for my husband and I to buy a home around 6 years ago. We couldn't afford much and anything in our price range either needed major renovations, or we lost out to investors who offered all cash. I would love to see new neighborhoods pop up, with smaller, affordable homes. Well built houses, that maximized space, but topped out at 1,500 sq ft would do really well nowadays. But I digress.
 
-As for the Chattanooga market for February, listings are up over last February, even though inventory is still down. Pending sales, closed sales, and average sales price are also up. Days on the market has dropped by almost half of what it was this time last year. 
-
-So this is a great time if you're looking to sell your home. Things will only get better since Spring is here, and more people are planning on putting their homes on the market. 
+As for the Chattanooga market for February, listings are up over last February, even though inventory is still down. Pending sales, closed sales, and average sales price are also up. Days on the market has dropped by almost half of what it was this time last year. This is a great time if you're looking to sell your home. 
 
 So, that's all I have for you today. If you have any questions, please don't hesitate to reach out. I'll answer your questions to the best of my ability. Thanks for reading!
