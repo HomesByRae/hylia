@@ -15,7 +15,7 @@ Every month the NAR releases data about how the housing market did nationwide th
 
 **Homes listed receive approx 5 offers.**
 
-In February, a home listed received approximately 5 offers on it. Also, roughly half of buyers are still offering over asking price (around 2.9% of asking price) which based on the median home price comes to about $10,000 extra. 
+In February, a home listed received approximately 5 offers on it. Also, roughly half of buyers are still offering over asking price (around 2.9% over asking price) which based on the median home price comes to about $10,000 extra. 
 
 That's something to consider if you're thinking of buying. You'll need to make sure you have your earnest money, down payment, closing costs, and any money for inspections. If you're thinking of offering over asking price then I'd recommend either looking at homes around $10K less than what you're approved for, or having the cash to pay the difference.
 
