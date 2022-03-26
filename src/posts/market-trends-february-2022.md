@@ -41,4 +41,4 @@ I remember how hard it was for my husband and I to buy a home around 6 years ago
 
 As for the Chattanooga market for February, listings are up over last February, even though inventory is still down. Pending sales, closed sales, and average sales price are also up. Days on the market has dropped by almost half of what it was this time last year. This is a great time if you're looking to sell your home. 
 
-So, that's all I have for you today. If you have any questions, please don't hesitate to reach out. I'll answer your questions to the best of my ability. Thanks for reading!
+So, that's all I have for you today. Contact me if you have any questions! I'll answer them to the best of my ability. I'd also love to hear any comments you may have. Thanks for reading!
