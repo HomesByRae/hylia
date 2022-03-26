@@ -1,11 +1,14 @@
 ---
 layout: layouts/post.njk
-title: Market Trends - February 2022
+title: Real Estate Market Trends - February 2022
 date: 2022-03-23T19:20:12.925Z
 tags:
-  - Market Trends
+  - Real Estate Market Trends
   - Things to Consider
+  - Chattanooga Real Estate Market
 ---
+![](/images/broken-white-professional-just-sold-instagram-post.png)
+
 I read an interesting [article](https://www.nar.realtor/blogs/economists-outlook/february-2022-realtors-confidence-index-survey-buyer-competition-intensifies-to-5-offers-per-home) from National Association of Realtors earlier today, so I wanted to share the article and my thoughts on it. I also wanted to share how the market here in Chattanooga did for February compared to February of last year. 
 
 So, first things first: every month the NAR releases data about how the housing market did nationwide the previous month. I enjoy reading this to see how things are going, but also because they talk about what they think is going to happen. 
@@ -23,5 +26,3 @@ I remember how hard it was for my husband and I to buy a home around 6 years ago
 As for the Chattanooga market for February, listings are up over last February, even though inventory is still down. Pending sales, closed sales, and average sales price are also up. Days on the market has dropped by almost half of what it was this time last year. So this is a great time if you're looking to sell your home. I think things will only get better since Spring is here, and more people are planning on putting their homes on the market. 
 
 So, that's all I have for you today. If you have any questions, please don't hesitate to reach out. I'll answer your questions to the best of my ability. Thanks for reading!
-
-
