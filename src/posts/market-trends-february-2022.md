@@ -35,7 +35,7 @@ Now the part that has me concerned. Because mortgage rates are rising, the NAR p
 
 I remember how hard it was for my husband and I to buy a home around 6 years ago. We couldn't afford much and anything in our price range either needed major renovations, or we lost out to investors who offered all cash.
 
- I would love to see new neighborhoods pop up, with smaller, affordable homes. Well built houses, that maximized space, but topped out at 1,500 sq ft would do really well nowadays. But I digress.
+ I would love to see new neighborhoods pop up, with smaller, affordable homes. Well built houses, that maximized space, but topped out at 1,500 sq ft would do really well nowadays.
 
 **Chattanooga Market Trends.**
 
