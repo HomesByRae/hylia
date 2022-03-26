@@ -7,7 +7,7 @@ tags:
   - Things to Consider
   - Chattanooga Real Estate Market
 ---
-![](/images/broken-white-professional-just-sold-instagram-post.png)
+![](/images/broken-white-professional-just-sold-instagram-post-1-.png)
 
 I read an interesting [article](https://www.nar.realtor/blogs/economists-outlook/february-2022-realtors-confidence-index-survey-buyer-competition-intensifies-to-5-offers-per-home) from the National Association of Realtors earlier today, so I wanted to share my thoughts with you.  I also wanted to share how the market here in Chattanooga did for February compared to February of last year. 
 
