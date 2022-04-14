@@ -6,6 +6,8 @@ tags:
   - Art Festival
   - Things to Do in Chattanooga
 ---
+![](/images/20220409_142053.jpg)
+
 This past weekend was the [4 Bridges Art Festival,](https://www.avarts.org/about-4baf1) an annual event here in Chattanooga. It is put on by the [Association For Visual Arts](https://www.avarts.org/), and is ranked in the top 20 fine art festivals in the nation. It is a two day festival, with a special ticketed preview party the night before, held at the First Horizon Pavilion.
 
 Some of the categories were: 
