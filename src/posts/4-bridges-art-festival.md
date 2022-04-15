@@ -31,7 +31,7 @@ If you plan on attending next year here are some tips for you, so you don't make
 
 **Do a lap (or two) around the event first!**
 
- If you're someone like me, who finds something to love at each vendor booth, walking around to see what you can see is always a good idea. One caveat though, if you find something you adore, it might be best to buy it when you see it. You could run the risk of not being able to buy the piece you love because someone else beat you to it.
+ If you're someone like me, who finds something to love at each vendor booth, walking around to see what is available before buying is always a good idea. One caveat though, if you find something you adore, it might be best to buy it when you see it. You could run the risk of not being able to buy the piece you love because someone else beat you to it.
 
 **Grab a business card, or sign up for a newsletter!**
 
