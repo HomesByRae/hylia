@@ -1,20 +1,30 @@
 ---
 layout: layouts/post.njk
-title: Tips for Starting Your Real Estate Journey
+title: Thinking of Becoming a  Real Estate Agent? Read this first!
 date: 2022-04-26T20:15:25.215Z
 ---
-Today I wanted to share with you some tips from my limited time in Real Estate. Some of these were things I wished I knew when I first started, and others are from either trial and error, or listening to other agents.
+Today's post is for those of you who are thinking of becoming a Real Estate Agent, or those of you who wish to understand the process a bit more.
 
-Let's begin with a little bit about my Real Estate Journey. I had been thinking of getting into Real Estate off and on for years, so when we moved to Tennessee from Texas it felt like the perfect time. We moved to the Chattanooga area in September of 2019 and were just getting familiar with the city when Covid shut everything down.
+Let's begin with a little bit about my Real Estate Journey. I had been thinking of getting into Real Estate off and on for years, so when we moved to Tennessee from Texas it felt like the perfect time. 
 
-In August of 2020, I decided to take the plunge and signed up for an online Real Estate course through [The CE Shop](https://www.theceshop.com/). I knew it was a lot of information to absorb, and I wanted to take my time with the material to make sure I understood everything. I completed the 90 hour course in six months.
+I signed up for an online Real Estate course through [The CE Shop](https://www.theceshop.com/). I knew it was a lot of information to absorb, and I wanted to take my time with the material to make sure I understood everything. I completed my course in six months. 
 
-Here's my first tip for you: **consider spaced repetition** to help you study the material. It's basically the use of Flash Cards, but the frequency of when you see them varies depending on how well you know the material on them. I recommend reading this article for more information \[]. I use [Anki](https://apps.ankiweb.net/) for my flashcards and find it extremely helpful.
+Here's my first tip for you: **consider spaced repetition.**
 
-So, in March of 2021, I took my licensing exam. My second tip is this: If you have a choice between an online exam or a physical exam, **take the physical exam**. Several agents have had some sort of technical issues with taking it online and for me it wasn't worth the hassle. I also had to get my fingerprints taken for a required background check.
+Spaced repetition is basically the use of flash cards, but the frequency of when you see them varies depending on how well you know the material. I recommend reading this article for more information \[]. I used [Anki](https://apps.ankiweb.net/) for my flashcards and liked it so much I continue to use them.
 
-Then I began the task of finding a broker. While you are an Indepent Contractor (which means you're self-employed) you need to have a Broker oversee you for liability reasons. 
+ My second tip is this: **take the physical exam**.
 
-My third tip is thus: **interview three Brokers** before making a decision. I interviewed my first Broker in April and then, because of one thing or another, didn't interview by second and third Brokers until September. I cut it close with my deadline, but at worst I would have had to retake my test. 
+Because I took a physical exam I didn't have to worry if my computer had the right software, or if there was something in the room I was in, or my internet connection. I showed up, they checked me in, took my picture, handed me a piece of scratch paper with my name on it and a calculator, and told me what station to sit at.
 
-Once I interviewed my three Brokers, I spent an agonizing weekend trying to figure out which one I liked the best. I was able to elimate one pretty quickly, but the other two I struggled with. I tried a pros and cons list, and it helped some, but I eventually had to rank my two choices based on what I was looking for and how well I thought they each did. In the end it was a difference of 5 points, but I'm happy with where I am now.
+The exam was in two portions, national and state, but you don't find out your score until the very end. I was happy to see I had passed on the first try, but if you don't pass your first time, don't get discouraged. Lots of agents end up taking the test multiple times. If you're anxious about it, do what I ended up doing and try to think of it like a practice test. 
+
+ I also had to get my fingerprints taken for a required background check. I waited to schedule this until after I had successfully passed my exam, and found out the place I had to go was right across the street from the testing center. Part of me wishes I had known that and scheduled them on the same day, but it wasn't a big deal to go back.
+
+My third tip is thus: **interview three Brokers** before making a decision. 
+
+You have six months from the date of your passed test to sign with a Broker. You don't have to wait until you pass your test to interview Brokers, you can do it while you're completing your course, so when you pass you're ready to get to work.
+
+I was nervous about interviewing Brokers, but I reminded myself that I was interviewing them, not the other way around. The CE Shop provided me with a list of questions to ask potential Brokers, but I also came up with some questions of my own. 
+
+Once I interviewed my three Brokers, I spent an agonizing weekend trying to figure out which one I liked the best. Did I agonize over the decision unnecessarily? Probably. It's not uncommon for Agents to change Brokerages as their career evolves, or they discover they don't mesh well with their current broker.
