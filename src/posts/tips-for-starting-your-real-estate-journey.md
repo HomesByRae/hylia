@@ -19,15 +19,17 @@ Because I took a physical exam I didn't have to worry if my computer had the rig
 
 The exam was in two portions, National and State, but you don't find out your score until the very end. If you don't pass your first time, don't get discouraged. Lots of agents end up taking the test multiple times. If you're anxious about it, do what I did and try to think of it like a practice test. 
 
-I also had to get my fingerprints taken for a required background check. I waited to schedule this until after I had successfully passed my exam, and found out it was right across the street from the testing center. Part of me wishes I had known that and scheduled them on the same day, but it wasn't a big deal to go back.
+I also had to get my fingerprints taken for a required background check. I waited to schedule this until after I had successfully passed my exam, and found out it was right across the street from the testing center. Luckily, it wasn't too far of a drive.
 
 My third tip is thus: **interview three Brokers** before making a decision. 
 
 You have six months from the date of your passed exam to sign with a Broker. You don't have to wait until you pass your test to interview Brokers, you can do it while you're completing your course.
 
-I was nervous about interviewing Brokers, but I reminded myself that I was interviewing them, not the other way around. The CE Shop provided me with a list of questions to ask potential Brokers, but I also came up with some questions of my own. 
+I was nervous, but I reminded myself that I was interviewing them, not the other way around. The CE Shop provided me with a list of questions to ask potential Brokers, but I also came up with some questions of my own. 
 
-Once I interviewed my three Brokers, I spent an agonizing weekend trying to figure out which one I liked the best. Did I agonize over the decision unnecessarily? Probably. It's common for Agents to change Brokerages as their career evolves, or they discover they don't mesh well with their current broker, but I wanted to make sure I was with the right company for me.
+Once I interviewed my three Brokers, I spent an agonizing weekend trying to figure out which one I liked the best. Did I agonize over the decision unnecessarily? Probably.
+
+It's common for Agents to change Brokerages as their career evolves, or they discover they don't mesh well with their current broker, but I wanted to make sure I was with the right company for me.
 
 My fourth and final tip: **Be prepared to spend a decent amount of money.**
 
