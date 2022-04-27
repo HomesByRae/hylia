@@ -19,7 +19,7 @@ My second tip is: **take the physical exam**.
 
 Because I took a physical exam I didn't have to worry if my computer had the right software, or if there was something in the room I was in, or my internet connection. I showed up, they checked me in, took my picture, handed me a piece of scratch paper with my name on it and a calculator, and told me what station to sit at.
 
-The exam was in two portions, National and State, but you don't find out your score until the very end. I was happy to see I had passed on the first try, but if you don't pass your first time, don't get discouraged. Lots of agents end up taking the test multiple times. If you're anxious about it, do what I ended up doing and try to think of it like a practice test. 
+The exam was in two portions, National and State, but you don't find out your score until the very end. If you don't pass your first time, don't get discouraged. Lots of agents end up taking the test multiple times. If you're anxious about it, do what I ended up doing and try to think of it like a practice test. 
 
 I also had to get my fingerprints taken for a required background check. I waited to schedule this until after I had successfully passed my exam, and found out it was right across the street from the testing center. Part of me wishes I had known that and scheduled them on the same day, but it wasn't a big deal to go back.
 
