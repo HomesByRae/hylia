@@ -5,11 +5,9 @@ date: 2022-04-26T20:15:25.215Z
 ---
 ![](/images/4-tips-for-becoming-a-real-estate-agent.png)
 
-Today's post is for those of you who are thinking of becoming a Real Estate Agent, or those of you who wish to understand the process a bit more.
+Today's post is for those of you who are thinking of becoming a Real Estate Agent. I'm going to walk you through the steps I took when I started out.
 
-Let's begin with a little bit about my Real Estate Journey. I had been thinking of getting into Real Estate off and on for years, so when we moved to Tennessee from Texas it felt like the perfect time. 
-
-I signed up for an online Real Estate course through [The CE Shop](https://www.theceshop.com/). I knew it was a lot of information to absorb, and I wanted to take my time with the material to make sure I understood everything. I completed my course in six months. 
+I signed up for an online Real Estate course through [The CE Shop](https://www.theceshop.com/). I was prepared to take my time because I knew it was a lot of information to absorb, and I wanted to make sure I understood everything.
 
 Here's my first tip for you: **consider spaced repetition.**
 
@@ -19,7 +17,7 @@ My second tip is: **take the physical exam**.
 
 Because I took a physical exam I didn't have to worry if my computer had the right software, or if there was something in the room I was in, or my internet connection. I showed up, they checked me in, took my picture, handed me a piece of scratch paper with my name on it and a calculator, and told me what station to sit at.
 
-The exam was in two portions, National and State, but you don't find out your score until the very end. If you don't pass your first time, don't get discouraged. Lots of agents end up taking the test multiple times. If you're anxious about it, do what I ended up doing and try to think of it like a practice test. 
+The exam was in two portions, National and State, but you don't find out your score until the very end. If you don't pass your first time, don't get discouraged. Lots of agents end up taking the test multiple times. If you're anxious about it, do what I did and try to think of it like a practice test. 
 
 I also had to get my fingerprints taken for a required background check. I waited to schedule this until after I had successfully passed my exam, and found out it was right across the street from the testing center. Part of me wishes I had known that and scheduled them on the same day, but it wasn't a big deal to go back.
 
@@ -29,7 +27,7 @@ You have six months from the date of your passed exam to sign with a Broker. You
 
 I was nervous about interviewing Brokers, but I reminded myself that I was interviewing them, not the other way around. The CE Shop provided me with a list of questions to ask potential Brokers, but I also came up with some questions of my own. 
 
-Once I interviewed my three Brokers, I spent an agonizing weekend trying to figure out which one I liked the best. Did I agonize over the decision unnecessarily? Probably. It's not uncommon for Agents to change Brokerages as their career evolves, or they discover they don't mesh well with their current broker.
+Once I interviewed my three Brokers, I spent an agonizing weekend trying to figure out which one I liked the best. Did I agonize over the decision unnecessarily? Probably. It's common for Agents to change Brokerages as their career evolves, or they discover they don't mesh well with their current broker, but I wanted to make sure I was with the right company for me.
 
 My fourth and final tip: **Be prepared to spend a decent amount of money.**
 
