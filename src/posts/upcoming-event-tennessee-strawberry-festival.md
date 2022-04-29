@@ -16,6 +16,6 @@ For those of you who aren't familiar with Dayton, it's about an hour north of Ch
 
 The Tennessee Strawberry Festival started in 1947, as a one-day festival sponsored by the Dayton City Lion's Club. The events this year include a Strawberry Pageant, a carnival, a fine art show, food and craft vendors, live music, a parade, and much more!  
 
-I'm looking forward to attending for the first time, spending the day with friends, and celebrating my birth month. We love visiting friends in Dayton, and I can't wait to enjoy the festival. 
+I'm looking forward to attending for the first time, spending the day with friends, and celebrating my birth month. We love visiting friends in Dayton, and I can't wait to experience the festival. 
 
 Have you been to the Strawberry Festival before? I'd love to hear any recommendations you have! For more information on the Tennessee Strawberry Festival click [here](https://tnstrawberryfestival.com/). Hope to see you there!
