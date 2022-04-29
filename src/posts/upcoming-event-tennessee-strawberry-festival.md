@@ -12,7 +12,7 @@ tags:
 
 Hey y'all, today's post is about an upcoming event I'm excited about: the Tennessee Strawberry Festival in Dayton, TN. It starts Monday, May 9th and runs through Saturday, May 14th.  
 
-For those of you who aren't familiar with Dayton, it's about an hour northwest of Chattanooga, in Rhea County. It is most known for being the place of the Scopes Trial in 1925, which was about whether evolution should be taught in public schools.
+For those of you who aren't familiar with Dayton, it's about an hour north of Chattanooga, in Rhea County. It is most known for being the place of the Scopes Trial in 1925, which was about whether evolution should be taught in public schools.
 
 The Tennessee Strawberry Festival started in 1947, as a one-day festival sponsored by the Dayton City Lion's Club. The events this year include a Strawberry Pageant, a carnival, a fine art show, food and craft vendors, live music, a parade, and much more!  
 
