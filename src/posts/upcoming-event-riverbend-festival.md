@@ -17,3 +17,5 @@ It'll be our first time attending and I'm studying the map of the grounds, makin
 Some tips if you're planning on attending: wear comfy clothes and shoes, bring sunscreen, an empty refillable water bottle (there will be refill stations), and a blanket or towel to lounge on the grass (I like to use a plastic flannel-backed tablecloth). Bags/purses have to be smaller than 12x12x6, and chairs, coolers, pets, and selfie sticks are prohibited.
 
 For a list of frequently asked questions, or a list of allowed and prohibited items [click here](https://aardvark-gardenia-8pjj.squarespace.com/faq).
+
+I hope this helps, and that you're excited like I am. Reach out if you have any questions. I hope to see you there!
