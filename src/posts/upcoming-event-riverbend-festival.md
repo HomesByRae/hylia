@@ -12,4 +12,8 @@ I'm so excited about the next Upcoming Event: Riverbend! Riverbend is a three-da
 
  There are three stages and over 20 artists performing. For the artist lineup [click here](https://www.riverbendfestival.com/lineup). There are several artists I can't wait to hear and I'm looking forward to discovering new artists as well.
 
-For a list of frequently asked questions, or a list of prohibited items [click here](https://aardvark-gardenia-8pjj.squarespace.com/faq).
+It'll be our first time attending and I'm studying the map of the grounds, making a list of things to take, and deciding on what clothes to wear (comfy shoes are a must!). 
+
+Some tips if you're planning on attending: wear comfy clothes and shoes, bring sunscreen, an empty refillable water bottle (there will be refill stations), and a blanket or towel to lounge on the grass (I like to use a plastic flannel-backed tablecloth). Bags/purses have to be smaller than 12x12x6, and chairs, coolers, pets, and selfie sticks are prohibited.
+
+For a list of frequently asked questions, or a list of allowed and prohibited items [click here](https://aardvark-gardenia-8pjj.squarespace.com/faq).
