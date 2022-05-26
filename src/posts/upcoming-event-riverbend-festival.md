@@ -8,6 +8,8 @@ tags:
   - Things to do in Chattanooga
   - Music Festival
 ---
+![](/images/upcoming-event-riverbend.png)
+
 I'm so excited about the next Upcoming Event: Riverbend!
 
 Riverbend is a three-day music festival in Chattanooga. It started in 1982 and is in the top 10% of music festivals in the States. It's located downtown at Ross's Landing along the Tennessee River.
