@@ -5,7 +5,7 @@ date: 2022-10-28T16:18:36.202Z
 ---
 ![](/images/20221026_151945_hdr.jpg)
 
-My in-laws were in town this past week, visiting us for the first time since we moved to Chattanooga in 2019. I wanted to share with you what we did, because I thought it would be helpful if you're planning on having guests from out of town. 
+My in-laws were in town this last week, visiting us for the first time since we moved to Chattanooga in 2019. I wanted to share with you what we did, because I thought it would be helpful if you're planning on having guests from out of town. 
 
 First, we started off by going to the UTC-Mercer game on Saturday, and had fun watching the Mocs win! On our way back to the car, we decided to pop into Gordon Food Service Store just to look around. It's a cross between a regular grocery store and a warehouse store, so it's not uncommon to find a regular can of, for example, refried beans right next to a Number 10 can of refried beans.
 
