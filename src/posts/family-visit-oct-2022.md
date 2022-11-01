@@ -37,4 +37,4 @@ Once we were at the top we walked over to Point Park and the [Chickamauga & Chat
 
 ![](/images/20221026_153122_hdr.jpg)
 
-We know we missed a lot of great things in the Chattanooga area, but are looking forward to the next visit. Is there anything I missed on your must visit list? Any hidden gems you'd recommend? I'd love to hear from you!
+We know we missed a lot of great things in the Chattanooga area, but we're looking forward to the next visit. Is there anything I missed on your must visit list? Any hidden gems you'd recommend? I'd love to hear from you! You can find me on Facebook, Instagram, and Twitter, or feel free to send me an email or text message.
