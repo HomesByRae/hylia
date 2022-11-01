@@ -21,7 +21,7 @@ Sunday we decided to drive to Ocoee to enjoy the view of the fall leaves. We sto
 
 ![](/images/20221023_163724.jpg)
 
-Monday we drove around [Enterprise South Nature Park](https://parks.hamiltontn.gov/148/Enterprise-South-Nature-Park), and even went inside one of the bunkers. We also visited [McKee Foods Bakery Store](https://www.mckeefoods.com/www) so they could pick up some Little Debbie for family back in Texas. Later that evening they walked around the [Bluff View Art District](https://bluffviewartdistrictchattanooga.com/), [Walnut Street Bridge](https://www.walnutstreetbridge.com/), and enjoyed dinner at [Champy's World Famous Fried Chicken](https://champyschicken.com/). 
+Monday we drove around [Enterprise South Nature Park](https://parks.hamiltontn.gov/148/Enterprise-South-Nature-Park), and even went inside one of the bunkers. We also visited the [McKee Foods Bakery Store](https://www.mckeefoods.com/www) so they could pick up some Little Debbie snacks for family back in Texas. Later that evening they walked around the [Bluff View Art District](https://bluffviewartdistrictchattanooga.com/), [Walnut Street Bridge](https://www.walnutstreetbridge.com/), and enjoyed dinner at [Champy's World Famous Fried Chicken](https://champyschicken.com/). 
 
 ![](/images/20221023_164503_hdr.jpg)
 
