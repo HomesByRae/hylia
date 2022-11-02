@@ -3,6 +3,14 @@ layout: layouts/post.njk
 title: Family Visit - Oct 2022
 date: 2022-10-28T16:18:36.202Z
 ---
+\*create two seperate posts! one for food recs, and the other for events!\*
+
+
+
+
+
+
+
 My in-laws were in town this last week, visiting us for the first time since we moved to Chattanooga in 2019. I wanted to share with you what we did, because I thought it would be helpful if you're planning on having guests from out of town. 
 
 ![](/images/20221026_151945_hdr.jpg)
