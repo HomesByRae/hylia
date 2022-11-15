@@ -19,7 +19,7 @@ Without further ado, here is my list of favorite things to do in the Chattanooga
 
 ~Visit [Enterprise South Nature Park](https://parks.hamiltontn.gov/148/Enterprise-South-Nature-Park). We love walking the trails, but if you can't the drive is pretty too.
 
-![](/images/20221023_164503_hdr.jpg)
+![](/images/20211108_154912_hdr.jpg)
 
 ~Shop at [The Samaritan Center](https://thesamaritancenter.net/stores/), McKee Foods Bakery Store, and [McKays Used Books](http://www.mckaybooks.com/).
 
