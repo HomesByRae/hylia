@@ -25,7 +25,7 @@ Without further ado, here is my list of favorite things to do in the Chattanooga
 
 ![](/images/20221022_194858.jpg)
 
-~Hike some trails at White Oak Mountain behind Southern Adventist University, and stop by their Museum.
+~Hike some trails at White Oak Mountain behind Southern Adventist University. Their student center is cool and fun to walk around.
 
 ~Ride the Lookout Mountain Incline Railway (and not get freaked out during the last little bit when it feels like you're going to fall out of your seat) and enjoy the view. Then walk over to the Chickamauga & Chattanooga National Military Park. Enjoy the peace and views there.
 
