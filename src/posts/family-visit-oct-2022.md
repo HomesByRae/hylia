@@ -35,4 +35,4 @@ Without further ado, here is my list of favorite things to do in the Chattanooga
 
 ~Camp and kayak at [Harrison Bay State Park](https://tnstateparks.com/parks/harrison-bay). When we first visited Chattanooga we stayed here and loved it. It's beautiful, peaceful, and only half an hour from downtown.
 
-I know there are lots of amazing things to do in the Chattanooga area and I've missed quite a few, but that just means they'll have to come back. What are some of your favorite things to do here? I'd love to hear from you!
+I know there are lots of amazing things to do in the Chattanooga area and I've missed quite a few, but that just means they'll have to come back. What are some of your favorite things to do here? I'd love to hear from you! Text, call, email, or follow me on Social Media.
