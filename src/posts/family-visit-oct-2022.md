@@ -19,6 +19,8 @@ Without further ado, here is my list of favorite things to do in the Chattanooga
 
 ~Visit Enterprise South Nature Park. We love walking the trails, but if you can't the drive is pretty too.
 
+![](/images/20221023_164503_hdr.jpg)
+
 ~Shop at The Samaritan Center, McKee Foods Bakery Store, and McKays Used Books.
 
 ~Ride the free electric shuttle around downtown Chattanooga and explore places along the route, such as the public library, the Chattanooga Choo Choo, Miller Plaza, and MoonPie General Store. Did you know MoonPie was created for miners, like my beloved WV pepperoni rolls?
